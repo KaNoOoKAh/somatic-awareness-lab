@@ -95,6 +95,7 @@ Examples:
 
 Can internal body mapping identify differences between perceived alignment and actual body position?
 
+Does posture alignment of the skin have any relationship with coordination and mental and physical awareness?
 ---
 
 ## Respiratory Function
