@@ -132,7 +132,11 @@ Physical Effects:
 Recovery Time:
 3:21p.m. HST 
 
-I have relaxed the areas i was sustaining the contracted state with. I am now applying direction from the brain to supply the eyes with nutrients while I apply positive and negative feedback (not pressure) while inhaling and exhaling. 
+- Intentional near-focus effort was discontinued at 3:21 PM HST.
+- Following discontinuation, feeling associated with the sustained accommodative effort gradually decreased.
+- Attention was directed toward the inner parts of the eyes and not the surrounding ocular region.
+- During inhalation and exhalation, awareness was maintained on sensations arising from the eyes.
+- No physical pressure was intentionally applied to the eyes or surrounding tissues. The force was similiar to increasing circulation. Which I have done to the face and other body regions while making sure I was able to supply myself with oxygen instead of holding my breath. 
 
 Notes: 
 
