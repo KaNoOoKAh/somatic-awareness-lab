@@ -128,4 +128,4 @@ Reference Note:
 
 College Physics by Hugh D.Young, Version: 9th Edition.
 
-"When the ciliary muscle surrounding the lens contracts, the lens bulges and the radii curvature of its surfaces decreases thereby decreasing the focal length. For the normal eye, an object at infinity is sharply focused when the ciliary muscleis relaxed. With increasing tension, the focal length decreases to permit sharp imaging on the retina of closer objects. The process is called accomodation."
+"When the ciliary muscle surrounding the lens contracts, the lens bulges and the radii curvature of its surfaces decreases thereby decreasing the focal length. For the normal eye, an object at infinity is sharply focused when the ciliary muscle is relaxed. With increasing tension, the focal length decreases to permit sharp imaging on the retina of closer objects. The process is called accommodation."
