@@ -118,7 +118,7 @@ Physical Effects:
 
 Recovery Time:
 -3:21 
-I have relaxed the areas i was sustaining the contracted state with. I am now applying direction from the brain to supply the eyes with nutrients while I apply positive and negative pressure while inhaling and exhaling. 
+I have relaxed the areas i was sustaining the contracted state with. I am now applying direction from the brain to supply the eyes with nutrients while I apply positive and negative feedback (not pressure) while inhaling and exhaling. 
 
 Notes: 
 
