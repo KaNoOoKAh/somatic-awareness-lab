@@ -117,7 +117,7 @@ Physical Effects:
 - A distinct or different feeling from the left eye compared to the right. The left eye feels not as controlled as the the right eye. I can feel more of the top front of the left eye and on the right eye i am starting to feel my entire eye lid on top of my right eye. 
 
 Recovery Time:
--3:21 
+3:21p.m. HST 
 I have relaxed the areas i was sustaining the contracted state with. I am now applying direction from the brain to supply the eyes with nutrients while I apply positive and negative feedback (not pressure) while inhaling and exhaling. 
 
 Notes: 
