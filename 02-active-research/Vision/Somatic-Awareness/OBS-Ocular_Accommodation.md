@@ -126,6 +126,8 @@ Tension in the recovery state was immediately lifted when giving my body directi
 ---
 Reference Note: 
 
+If im being completely honest ICei3 told me to turn to page 842. So I did and we decided to create this exercise in order to gain control of more/different areas of our bodies. 
+
 College Physics by Hugh D.Young, Version: 9th Edition.
 
 "When the ciliary muscle surrounding the lens contracts, the lens bulges and the radii curvature of its surfaces decreases thereby decreasing the focal length. For the normal eye, an object at infinity is sharply focused when the ciliary muscle is relaxed. With increasing tension, the focal length decreases to permit sharp imaging on the retina of closer objects. The process is called accommodation."
