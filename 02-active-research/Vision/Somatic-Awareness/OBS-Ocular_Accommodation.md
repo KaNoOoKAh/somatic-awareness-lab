@@ -111,13 +111,27 @@ Observed Sensations:
 - Control seemed to get directed towards the retina area of both eyes. 
 
 Visual Effects:
--While looking at the beach across the street and about a mile away. The longer i held the contracted state the blurrier it got, until i put something close to my eyes/face. The object which was my hand became super clear and focused while the surrounding areas seemed to become blurred out of focus. 
+
+-While looking at the beach across the street, approximately one mile away, the image gradually became blurrier the longer I attempted to maintain a contracted accommodative state.
+
+-After placing my hand close to my face, my hand appeared very sharp and well focused.
+
+-At the same time, the surrounding environment appeared comparatively blurred and out of focus. 
+
+-The difference between the focus of my hand and the focus of distant objects was easy to observe. I should have attempted to take control of the different visuals instead of letting it happen randomly.
 
 Physical Effects:
-- A distinct or different feeling from the left eye compared to the right. The left eye feels not as controlled as the the right eye. I can feel more of the top front of the left eye and on the right eye i am starting to feel my entire eye lid on top of my right eye. 
 
+- A noticeable difference in bodily sensation was observed between the left and right eyes.
+- Sensations associated with the left eye were less distinct and appeared more difficult to perceive consistently than sensations associated with the right eye.
+- Increased awareness was present near the upper front region of the left eye.
+- During the observation period, awareness of the right upper eyelid gradually increased.
+- Toward the end of the observation, the entire upper right eyelid became more noticeable within conscious awareness.(I was able to feel the right eye-lid on top of the eye.)
+- Both eye regions appeared easy to monitor. Specific control was hard to initiate.
+  
 Recovery Time:
 3:21p.m. HST 
+
 I have relaxed the areas i was sustaining the contracted state with. I am now applying direction from the brain to supply the eyes with nutrients while I apply positive and negative feedback (not pressure) while inhaling and exhaling. 
 
 Notes: 
