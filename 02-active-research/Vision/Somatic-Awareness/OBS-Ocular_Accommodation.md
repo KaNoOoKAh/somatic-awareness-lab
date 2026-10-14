@@ -123,10 +123,12 @@ I have relaxed the areas i was sustaining the contracted state with. I am now ap
 Notes: 
 
 Tension in the recovery state was immediately lifted when giving my body directions and helping in the process. 
----
-Reference Note: 
+
 
 If im being completely honest ICei3 told me to turn to page 842. So I did and we decided to create this exercise in order to gain control of more/different areas of our bodies. 
+
+---
+Reference Note: 
 
 College Physics by Hugh D.Young, Version: 9th Edition.
 
