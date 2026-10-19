@@ -4,7 +4,7 @@ Date of Current Incident: October 19, 2026
 
 Location: Oahu, Hawaii
 
-Subject: Dangerous driving behavior and pet incident involving neighbor
+Subject: Dangerous driving behavior and pet incident involving an individual
 
 Incident Timeline (October 19, 2026)
 
