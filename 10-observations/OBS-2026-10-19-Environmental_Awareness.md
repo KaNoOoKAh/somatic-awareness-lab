@@ -14,6 +14,12 @@ The individual operating a vehicle ran over our cat.
 
 7:15 AM – 7:20 AM:
 
+Individuals Features: 
+
+- Glasses
+- Insisted the person had jet lag
+- Eyes appeared in a way that reminds me of the reason cops say someone is under the influence when inspecting their eyes. Although it appeared that she did not have much sclera visible.
+
 We spoke directly with the individual regarding the incident. During the conversation, the individual stated she saw the cat run into the road. However, she acknowledged that she did not attempt to stop her vehicle, stating she believed the cat had run underneath the car and safely passed by. She acknowledged her actions and said that she needs to clean her vehicle because she cannot see.
 
 Additional Prior Safety Incidents
