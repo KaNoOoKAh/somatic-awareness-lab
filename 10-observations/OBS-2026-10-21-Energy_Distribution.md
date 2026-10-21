@@ -56,5 +56,7 @@ When holding water in my mouth, I have noticed that areas closer to my throat ar
 
 This may suggest a potential link between the physical and psychological components underlying certain breathing abnormalities, illnesses, & withdrawal symptoms.
 
-Sustained activation, control, and directed effort toward the brain and spinal regions, particularly while maintaining activation in a separate area, appears to promote relaxation in other areas that typically remain persistently active, even during periods of relaxation/rest. 
+Sustained activation, control, and directed effort toward the brain and spinal regions, particularly while maintaining activation in a separate area, appears to promote relaxation in other areas that typically remain persistently active, even during periods of relaxation/rest.  
+
+While also restoring or possibly creating pathways to the activated regions and spinal cord & brain. 
 
