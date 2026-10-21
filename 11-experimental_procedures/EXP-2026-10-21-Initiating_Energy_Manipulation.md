@@ -19,7 +19,7 @@ objective: >
 
   To increase control of different areas of the body.
 
-  Isolate the different process and functions of the body for mechanics. (intercourse) This is to gain control of the specific process needed to maintain and sustain macro-large movements. While also being able to actually control a specific area using different control hubs/areas of concentration. In order for the mind and body to properly sustain all other process and functions during critical moments. Instead of the body not being able to maintain what it needs to when a certain function is out of alignment. 
+  Isolate the different process and functions of the body for mechanics. This is to gain control of the specific process needed to properly initiate and complete macro-large movements. While also being able to actually control a specific area during critical moments when control of certain areas is being interfered with because of an internal or external influence. To be able to have complete control of my mind and body to properly sustain its self in critical moments. To be able to maintain certain process in a specific area regardless of what is happening visually or physically.
   
 observation_type:
   - subjective
