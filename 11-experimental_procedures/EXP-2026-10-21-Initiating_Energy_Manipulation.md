@@ -17,12 +17,18 @@ objective: >
   To explore whether sustained mental imagery and directed attention
   can influence the perception and modulation of internal sensations.
 
-  To increase control of different areas of the body.
-
-  Isolate the different process and functions of the body for mechanics. This is to gain control of the specific process needed to properly initiate and complete macro-large movements. While also being able to actually control a specific area during critical moments when control of certain areas is being interfered with because of an internal or external influence. To be able to have complete control of my mind and body to properly sustain its self in critical moments. To be able to maintain certain process in a specific area regardless of what is happening visually or physically.
+  Isolation and activation of secondary process and functions. 
   
+  To gain control of a specific process needed to properly initiate and complete macro-large movements. 
+  
+  To improve the ability to intentionally regain control over a specific body area during high-stress or disruptive moments, including when concentration of motor coordination is affected by internal states (e.g., anxiety, pain, fatigue), external distractions (e.g., noise, social pressure, and environmental influence. 
+  
+  To develop reliable control over my mental and physical state so I can stay composed and effective in critical moments.
+  
+  Maintain certain process in a specific area regardless of what is happening visually, physically, and internally.
+
 observation_type:
-  - subjective
+  - subjectivea
   - phenomenological
   - qualitative
 
