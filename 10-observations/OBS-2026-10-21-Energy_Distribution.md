@@ -54,7 +54,7 @@ This may support its value as a repeatable somatic calibration method.
 
 When holding water in my mouth, I have noticed that areas closer to my throat are becoming more sensitive to temperature differences. I am also able to direct water to regions of my mouth that water could not easily reach before, suggesting improved awareness and control of water movement and specific regions within the oral cavity and throat. 
 
-This may suggest a potential link between the physical and psychological components underlying certain breathing abnormalities, illnesses, & withdrawal symptoms.
+This may suggest a potential link between the physical and psychological components underlying certain breathing abnormalities, reflexes (knee/throat) illnesses, & withdrawal symptoms.
 
 Sustained activation, control, and directed effort toward the brain and spinal regions, particularly while maintaining activation in a separate area, appears to promote relaxation in other areas that typically remain persistently active, even during periods of relaxation/rest.  
 
