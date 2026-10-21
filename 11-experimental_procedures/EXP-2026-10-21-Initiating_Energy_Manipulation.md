@@ -34,7 +34,7 @@ observation_type:
 
 claims:
   - Observational only
-  - Mechanism - activated area 
+  - Mechanism - activated area - 
 
 last_updated: 2026-10-21
 ---
