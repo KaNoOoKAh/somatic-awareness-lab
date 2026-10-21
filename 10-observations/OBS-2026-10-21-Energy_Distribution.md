@@ -51,4 +51,8 @@ This may support its value as a repeatable somatic calibration method.
 
 #### Late observations @ 11:46am 
 
-When holding water in my mouth, I have noticed that areas closer to my throat are becoming more sensitive to temperature differences. I am also able to direct water to regions of my mouth that water could not easily reach before, suggesting improved awareness and control of water movement within the oral cavity and throat.
+When holding water in my mouth, I have noticed that areas closer to my throat are becoming more sensitive to temperature differences. I am also able to direct water to regions of my mouth that water could not easily reach before, suggesting improved awareness and control of water movement within the oral cavity and throat. 
+
+#### ^ Important 
+
+This may suggest a potential link between the physical and psychological components underlying certain withdrawal symptoms.
