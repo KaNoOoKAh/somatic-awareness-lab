@@ -51,4 +51,4 @@ This may support its value as a repeatable somatic calibration method.
 
 #### Late observations @ 11:46am 
 
-I have water being held in my mouth and the areas closer to the throat are now able to feel temperature differences and also have water directed to those areas. I am able to have water be directed in different directions that I couldnt do before when holding water in my mouth. 
+When holding water in my mouth, I have noticed that areas closer to my throat are becoming more sensitive to temperature differences. I am also able to direct water to regions of my mouth that water could not easily reach before, suggesting improved awareness and control of water movement within the oral cavity and throat.
