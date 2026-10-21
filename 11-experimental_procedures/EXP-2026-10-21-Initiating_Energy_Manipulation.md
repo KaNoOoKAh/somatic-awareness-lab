@@ -19,7 +19,7 @@ objective: >
 
   To increase control of different areas of the body.
 
-  Isolate the different process and functions of the body for mechanics. No this isnt to shoot energy balls. This is to gain control of the specific process needed to maintain and sustain macro-large movements. While also being able to actually control a specific area using different control hubs/areas of concentration. In order for the mind and body to properly sustain all other process and functions during critical moments. Instead of the body not being able to maintain what it needs to when a certain function is out of alignment. 
+  Isolate the different process and functions of the body for mechanics. No this isnt to shoot energy balls (unless certain factors are present, willing, and welcoming). This is to gain control of the specific process needed to maintain and sustain macro-large movements. While also being able to actually control a specific area using different control hubs/areas of concentration. In order for the mind and body to properly sustain all other process and functions during critical moments. Instead of the body not being able to maintain what it needs to when a certain function is out of alignment. 
   
 observation_type:
   - subjective
