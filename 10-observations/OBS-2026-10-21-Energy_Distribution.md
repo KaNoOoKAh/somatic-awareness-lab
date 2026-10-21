@@ -56,4 +56,4 @@ When holding water in my mouth, I have noticed that areas closer to my throat ar
 
 #### ^ Important 
 
-This may suggest a potential link between the physical and psychological components underlying certain illnesses & withdrawal symptoms.
+This may suggest a potential link between the physical and psychological components underlying certain breathing abnormalities, illnesses, & withdrawal symptoms.
