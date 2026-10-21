@@ -48,3 +48,7 @@ This may support its value as a repeatable somatic calibration method.
 
 ## Tags
 `observation` `morning-session` `pressure-dynamics` `tooth-brush-trial` `supine` `somatic-awareness`
+
+#### Late observations @ 11:46am 
+
+I have water being held in my mouth and im noticing that the rear areas of my mouth and throat are now able to feel and also have water directed to those areas. It feels like water is able to be directed in different directions up and down. 
