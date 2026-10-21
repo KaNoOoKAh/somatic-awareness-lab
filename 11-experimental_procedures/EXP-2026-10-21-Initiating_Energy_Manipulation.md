@@ -76,3 +76,5 @@ Repeat the exercise for a fixed duration or until a clear change in perception, 
 - Interoceptive Ability and Emotion Regulation in Mind-Body Interventions
   (Lazzarelli et al., 2024)
   ---
+
+IF I NEED TO MAKE A NEW THEORY OR HYPOTHESIS IF YOU GUYS ARENT GONNA DO IT IM GONNA DO IT AND THEN WHATS GONNNA HAPPEN
