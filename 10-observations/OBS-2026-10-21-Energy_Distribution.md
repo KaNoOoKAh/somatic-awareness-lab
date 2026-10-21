@@ -58,5 +58,4 @@ This may suggest a potential link between the physical and psychological compone
 
 Sustained activation, control, and directed effort toward the brain and spinal regions, particularly while maintaining activation in a separate area, appears to promote relaxation in other areas that typically remain persistently active, even during periods of relaxation/rest.  
 
-While also restoring or possibly creating pathways to the activated regions and spinal cord & brain. Atleast thats what it feels like. Response and response time is also increasing to the abdullah magata thing. When I am able to make a stable connection to areas of the spine and activate the areas inbetween, it feels like im able to create a mental connection or feel a mental connection.
 
