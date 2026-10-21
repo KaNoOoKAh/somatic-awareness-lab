@@ -21,9 +21,15 @@ Focus was placed on consistency of pressure quality, rhythm, and distribution ra
 
 - Applying the pattern while supine appeared to increase awareness of contact points and pressure gradients. Specifically, response of the spine was greatly increased.
 
-- During this I was able to 100% control different amounts of energy in all areas of the body. I was also able to slow it down, speed it up, change the amounts of waves, shorten or increase the length of waves, change the directions, and also change the directions of the waves even in a single area. 
+- During this I was able to 100% control different amounts of energy in all areas of the body. I was also able to slow it down, speed it up, change the amounts of waves, shorten or increase the length of waves, change the directions, and also change the directions of the waves even in a single area.
 
-- I noticed that as I laid down and as I got farther into the session, the moment that I pictured a movement into my mind. The body part would react and it would respond with the current speed that the energy was flowing inside that area. 
+- I noticed that as I laid down and as I got farther into the session, the moment that I pictured a movement into my mind. The body part would react and it would respond with the current speed that the energy was flowing inside that area.
+
+#### Basics 
+
+- (Form a mental image of waves of energy in your mind and picture the wave starting at one end and slowly build it up and rock it back and forth to different sides, or roll it like a ball and increase or decrease the size intermittently while sustaining the waves in its current state).
+  
+- Repeated practice increased the control I now have while also giving me different methods of creating or collecting energy needed to do this.  
 
 ## Preliminary Interpretation
 
